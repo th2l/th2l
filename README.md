@@ -6,4 +6,4 @@
 
 💬 Ask me about my projects/repos.
 
-📫 How to reach me: https://vthuynh.net
+📫 How to reach me: 📨 vthuynh (at) ieee.org / https://vthuynh.net
